@@ -1,4 +1,4 @@
 # hello-world
 24.07.2019
-hi fuckers!
+Sa
 Düzce Üniversitesi- Elektrik-Elektronik Mühendisliği/ 2019
